@@ -1,6 +1,6 @@
 ## Hi 👋
 
-I'm Mike! I'm a Full Stack Developer who loves building things and has a relentless curiousity for understanding how everything works. My fulfillment comes in the form of solving a problem for one or many and being able to say "I was a part of building that!" 
+I'm Mike! I'm a PM & Developer who loves building things and has a relentless curiousity for both things and people. My fulfillment comes in the form of solving problems...even better if I'm apart of a team doing so. 
 
 ### Feel free to reach me at:
 
