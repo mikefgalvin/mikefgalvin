@@ -1,6 +1,6 @@
 ## Hi 👋
 
-I'm Mike! I'm a PM & Developer who loves building things and has a relentless curiousity for both things and people. My fulfillment comes in the form of solving problems...even better if I'm apart of a team doing so. 
+I'm Mike! I'm a PM & Developer who loves building things and has a relentless curiosity about both things and people. I find fulfillment in solving problems—especially when I'm part of a team doing so.
 
 ### Feel free to reach me at:
 
